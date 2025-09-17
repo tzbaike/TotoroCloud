@@ -1,5 +1,5 @@
 # 龙猫云机场官网地址
-最新官网地址：[龙猫云机场官网](https://go.dler.cc/dlercloud)
+最新官网地址：[龙猫云机场官网](https://go.dler.cc/totorocloud)
 
 ## 龙猫云机场怎么样？
 Totoro Cloud 中文名为龙猫云，一家颇具实力的新机场，Shadowsocks 协议节点，IPLC 专线，对 Netflix、Disney+ 流媒体和 ChatGPT 提供很好的解锁支持。龙猫云机场官方提供了详细的视频、文档以及贴心的客服支持，对翻墙新手十分友好。
@@ -34,7 +34,7 @@ Totoro Cloud 中文名为龙猫云，一家颇具实力的新机场，Shadowsock
 目前龙猫云机场没有跑路，可以放心使用。
 
 ## 龙猫云机场评测
-更多有关龙猫云机场评测可访问：https://go.dler.cc/dlercloud
+更多有关龙猫云机场评测可访问：https://go.dler.cc/totorocloud
 
 ## 机场推荐
- - [最新好用的机场推荐与节点分享](https://go.dler.cc/dlercloud)
+ - [最新好用的机场推荐与节点分享](https://go.dler.cc/totorocloud)
